@@ -1,10 +1,1 @@
-EU QUERO TE POSSUIR
-QUERO VOCẼ
-TODINHA PRA MIM
---------------------
-CARRO DE MALANDRO
-CARRO DE MALANDRO
---------------------
-I DONT WALK NO BE YOU
-ANYMORE
---------------------
+
